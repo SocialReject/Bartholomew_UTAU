@@ -15,6 +15,8 @@ Use the rendered vocals for use in Band in a Box or whatever music making softwa
 # DEFINTIONS:
 "Beast" in this case is an umbrella term for a character with animalistic characteristics in general. Bartholomew is both a character that could appeal to furries and therians.
 
+Hopefully it'll also appeal to anyone, you don't really have to use his character with the voicebank if you don't want to.
+
 # CREDITS:
 Character Art: Therian of Four
 
