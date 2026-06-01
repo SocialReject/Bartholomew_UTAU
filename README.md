@@ -28,7 +28,7 @@ Four Strong Winds
 https://www.youtube.com/watch?v=DqUuEXP5Z34
 
 Raindrops Keep Fallin' On My Head
-https://www.youtube.com/watch?v=F3O-0UfTxZ4&t=44s
+https://www.youtube.com/watch?v=F3O-0UfTxZ4
 
 # DEFINTIONS
 "Beast" in this case is an umbrella term for a character with animalistic characteristics in general. Bartholomew is both a character that could appeal to furries and therians.
