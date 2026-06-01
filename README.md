@@ -25,3 +25,8 @@ Placeholder Logo: MaximusWolfie
 Transparent Version of Character Art: Digits0801
 
 Reclist: Kanru Hua, KLAD (Both not associated with project)
+
+# DISCLAIMER
+I am not responsible for any possible damage this repo may cause to your computer.
+
+You cannot use any of the assets here for commercial use, I'm putting it up here just for archiving.
