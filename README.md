@@ -15,6 +15,9 @@ Use the rendered vocals for use in Band in a Box or whatever music making softwa
 
 # CREDITS:
 Character Art: Therian of Four
+
 Placeholder Logo: MaximusWolfie
+
 Transparent Version of Character Art: Digits0801
+
 Reclist: Kanru Hua, KLAD (Both not associated with project)
